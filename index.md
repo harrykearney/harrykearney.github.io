@@ -1,1 +1,2 @@
-![a picture of joey biden should show up here but oyour browser said no](‪C:\Users\HarryK\Pictures\joe.jpg)
+# Harry Kearney
+## Still don't know what I'm going to do with this site tbh.
