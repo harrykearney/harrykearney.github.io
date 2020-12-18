@@ -1,2 +1,1 @@
-# Harry Kearney
-## Still don't know what I'm going to do with this site tbh.
+## [Check out the GitHub User Page I guess.](https://www.github.com/harrykearney)
